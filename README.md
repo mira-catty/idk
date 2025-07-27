@@ -1,0 +1,2 @@
+# idk
+şu anlık bilmiyorum
