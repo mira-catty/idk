@@ -1,1 +1,1 @@
-bilmem kafama göre
+bilmem
